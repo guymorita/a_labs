@@ -109,6 +109,75 @@ on "best Rejuran clinic" blogs are mostly SEO/lead-gen and not independently ver
 - **Expectations:** subtle glow/hydration peaking weeks 1–4, fading by ~week 9. For
   real results you'd need to repeat 2–3× — not possible on a one-day trip.
 
+## 6. Longer-lasting / "more permanent" options (follow-up)
+
+Rejuran is skin *quality* (texture, hydration) and lasts only 6–12 months. Nothing
+non-surgical is truly permanent, but these are more durable per visit:
+
+- **Collagen biostimulators** — Sculptra (PLLA), Radiesse (CaHA), or the Korean
+  **AestheFill** (PDLLA). They trigger your own collagen over months; results last
+  **~2 years** and address volume loss / deeper lines, not just surface glow. A single
+  session still deposits material and keeps building — better one-visit longevity than
+  one Rejuran.
+- **Energy-based lifting** — **Ultherapy (HIFU)** or **Thermage (RF)**. One session,
+  no injectable, tightens/lifts, results last **~1–2 years**. For a 38-year-old male
+  starting to see mild laxity this is arguably the best "one day, lasting, low-downtime"
+  pick. (Note: TheiA specializes in Ultherapy; MOCCI offers Thermage.)
+- **Truly permanent** = surgical only (thread lift is semi-permanent ~1–2 yr; facelift
+  is structural). Out of scope for a one-day skin-quality trip.
+
+**Decision rule:** if the goal is *glow*, Rejuran. If the goal is *lasting structure*,
+prioritize HIFU/RF or a biostimulator. They are not mutually exclusive.
+
+## 7. Layering with Botox
+
+- Botox + Rejuran **same day is commonly done and generally fine** as long as the
+  injection areas don't overlap. Many clinics do Botox first, then Rejuran. Tell the
+  clinic you want both and let the doctor sequence it.
+- Botox is **maintenance, not permanent** — lasts 3–4 months; treats *dynamic* lines
+  (forehead, glabella, crow's feet). It complements Rejuran (skin quality) well.
+- **Male dosing:** men have stronger facial muscles and usually need higher doses. If
+  it's your first time, go **conservative** — you can always top up; you can't undo an
+  over-frozen look before a flight home.
+
+## 8. Finding clinics: friend recs vs apps
+
+Friend recommendations are actually a **better** signal than app reviews — friends
+aren't incentivized and you can interrogate them. But only if you ask the right
+follow-ups. "I loved it" is worthless. Ask each friend:
+
+1. Did a **doctor** do the injection (not a nurse/consultant)?
+2. Were you **upsold** add-ons? Did you feel pressured?
+3. Any **complications / bruising**, and was aftercare explained?
+4. Would you **go back**? What exactly did you get, and what did it cost?
+
+Strongest signal = a clinic named by **multiple independent friends** that is also
+doctor-led with **specific, detailed** (not generic) app reviews. For a one-day trip,
+also weight logistics: near your hotel, open Monday, English + price confirmed in
+writing.
+
+### Friend-recommended clinics assessed
+
+- **Muse Clinic** — large, very foreigner-focused chain. Pros: extremely English-
+  friendly, fast, cheap, handles paperwork. Cons: rushed/impersonal "factory" model,
+  reports of upsell pressure. Fine *if* you know exactly what you want and won't be
+  talked into extras.
+- **Egg Clinic** (Gangnam/Sinsa) — smaller, more personalized; does Rejuran, lifting
+  and glow injections; English staff + translators. Cons: consults can lean toward
+  selling packages; aftercare instructions reported as sometimes unclear.
+
+## 9. Updated ranking (5 candidates)
+
+For "one careful Rejuran + Botox session, treated well, low upsell risk":
+
+1. **MOCCI Clinic** — Rejuran specialist, premium, can also do Thermage + Botox in one
+   visit. Best all-round fit.
+2. **Egg Clinic** — personalized, does Rejuran + lifting + Botox; watch package upsell.
+3. **TheiA Clinic** — choose if you want **lasting lifting (Ultherapy)** + Botox over a
+   glow-focused visit; best hours.
+4. **Seoul i Plastic Surgery** — budget/high-volume; confirm a doctor injects.
+5. **Muse Clinic** — only if you want fast + cheap and will firmly decline add-ons.
+
 ## Sources
 
 - https://www.thepickool.com/gangnam-unni-launches-fake-review-crackdown/
@@ -122,3 +191,8 @@ on "best Rejuran clinic" blogs are mostly SEO/lead-gen and not independently ver
 - https://www.mocci.clinic/about-eng
 - https://www.mjsmedicals.com/is-one-session-of-rejuran-enough/
 - https://cosmeticconnection.com.au/articles/rejuran-downtime-recovery-timeline/
+- https://uskinclinics.com/rejuran-vs-sculptra-collagen-stimulation/
+- https://veeusebio.com/2025/08/18/your-complete-guide-to-biostimulators-sculptra-aesthefill-rejuran-radiesse-for-natural-facial-rejuvenation/
+- https://www.realself.com/question/phillipsburg-nj-skin-boosters-botox-injected-day
+- https://askkorea.io/blogs/real-review/visit-to-muse-clinic-gangnam
+- https://www.koreaclinicguide.com/clinic/sinsa-egg-clinic
