@@ -178,6 +178,56 @@ For "one careful Rejuran + Botox session, treated well, low upsell risk":
 4. **Seoul i Plastic Surgery** — budget/high-volume; confirm a doctor injects.
 5. **Muse Clinic** — only if you want fast + cheap and will firmly decline add-ons.
 
+## 10. Scoring the 7 friend-recommended clinics
+
+Goal restated: a **good-quality experience** + a real **consultation** (patient doesn't
+yet know what he needs) + 1–2 treatments, in one day. That means a doctor-led,
+unhurried, low-upsell clinic matters more than price or volume.
+
+Weighted scorecard (each criterion scored 1–5):
+
+| Clinic | Doctor-led consult ×3 | Low upsell ×2 | English (incl. doctor) ×2 | Comfort/quality ×2 | Can act now / Mon hours ×1 | Total /50 |
+|---|---|---|---|---|---|---|
+| **Fine Clinic** | 5 | 5 | 5 | 5 | 3 | **48** |
+| **Forena Clinic** | 5 | 5 | 5 | 5 | 3 | **48** |
+| **You & I Clinic** | 3 | 3 | 3 | 3 | 5 | **32** |
+| **Egg Clinic** | 3 | 2 | 4 | 4 | 3 | **32** |
+| **Muse Clinic** | 2 | 2 | 5 | 2 | 4 | **28** |
+| **Oracle** | 2 | 1 | 4 | 3 | 4 | **26** |
+| **Yeaap Clinic** | — | — | — | — | — | unrated |
+
+Notes:
+- **Fine Clinic** (Sinsa/Gangnam) — doctors fluent in English, thorough consults,
+  honest advice, *explicitly avoids upselling*, private rooms, "not a factory." Best
+  match for the stated priorities.
+- **Forena Clinic** (Hongdae) — boutique, private suites, multilingual, unhurried,
+  "non-factory," does Ultherapy/Thermage/Rejuran/Botox. Equal best; location is Hongdae,
+  not Gangnam.
+- **You & I Clinic** (Gangnam) — 17 yrs, **same price for foreigners**, open every day
+  incl. weekends/holidays. Strong logistics backup; quality is solid but less
+  distinctively "boutique."
+- **Egg Clinic** — personalized but consults lean toward selling packages.
+- **Muse Clinic** — fast/cheap foreigner factory; rushed, upsell pressure.
+- **Oracle** — 70+ clinic mega-franchise; documented complaints of **overcharging
+  foreigners**. Avoid for a quality-first visit.
+- **Yeaap Clinic** — no verifiable English-language footprint; could not vet. Ask the
+  friend who recommended it for specifics before trusting it for a same-day booking.
+
+## 11. Decision and Sunday-night action plan
+
+**Call/message these two:** Fine Clinic and Forena Clinic. Backup: You & I (open
+weekends, so reachable tonight).
+
+- It's Sunday night — most clinics are closed. **Send written inquiries now** (UNNI
+  app chat, website form, Instagram DM, WhatsApp/Kakao if listed) so you're first in
+  the Monday queue; **call right at opening Monday** to confirm.
+- Book a **morning slot** Monday: consult → treatment → downtime before any flight.
+- Go in with a brief, not a shopping list: *"38yo male, first time, want a natural —
+  not overdone — result, here's my budget cap, recommend 1–2 treatments."* Let the
+  doctor's skin analysis drive it.
+- Sensible default to discuss: **Rejuran + Botox** (glow + dynamic lines) or, if you
+  want longevity, **HIFU/RF lifting + Botox**. Decide with the doctor.
+
 ## Sources
 
 - https://www.thepickool.com/gangnam-unni-launches-fake-review-crackdown/
@@ -196,3 +246,7 @@ For "one careful Rejuran + Botox session, treated well, low upsell risk":
 - https://www.realself.com/question/phillipsburg-nj-skin-boosters-botox-injected-day
 - https://askkorea.io/blogs/real-review/visit-to-muse-clinic-gangnam
 - https://www.koreaclinicguide.com/clinic/sinsa-egg-clinic
+- https://askkorea.io/ja/blogs/real-review/oracle-clinic-seoul-visitor-must-see-this
+- https://thefineclinic.com/en
+- https://www.harpersbazaar.com.sg/beauty/private-suites-english-speaking-doctors-seoul-aesthetic-clinic-bespoke-skin-treatments-forena-clinic
+- https://english.visitkorea.or.kr/svc/contents/MedicalKorea/contentsMedicalKoreaView.do?menuSn=923&dataSetId=116&vcontsId=204561
