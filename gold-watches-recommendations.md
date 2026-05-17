@@ -202,6 +202,73 @@ Tank links:
 - Used Tanks — Bob's Watches: https://www.bobswatches.com/cartier/tank-1.html
 - Tank model guide: https://www.grayandsons.com/blog/a-guide-to-different-cartier-tank-watches/
 
+## The Daytona Look (Black & Gold) on a $1–2k Budget
+
+You like the yellow-gold, black-dial Daytona — gold case, black dial, three
+gold-ringed subdials, tachymeter bezel. A solid-gold Daytona is $40k+ and even
+a two-tone one is ~$20k, so under $2k you're choosing between **(a)** a vintage
+icon with that DNA, **(b)** a used two-tone chrono from a real brand, or
+**(c)** a tasteful modern chrono that gestures at it. Skip blatant clones
+(Pagani, Invicta) — they read as fake Rolexes and undercut the whole "looks
+expensive" goal.
+
+**DT1. Vintage Seiko 6138 "John Player Special" (ref. 6138-8030/8039) — ~$500–$1,000**
+Literally black and gold: automatic chronograph, gold-tone case, black dial,
+three registers, inner tachymeter. Its own 1970s icon, not a Daytona copy, and
+it looks like a watch worth 5x the price. Best looks-per-dollar by far. Caveat:
+genuinely vintage (~42mm, 1976–77) — buy a serviced example or budget ~$200 to
+service it.
+- https://watchcharts.com/watch_model/26076-seiko-john-player-special-edition-chronograph-6138-8030/overview
+
+**DT2. Used TAG Heuer two-tone chronograph (Carrera / 6000 / Link, 1990s–2010s) — ~$1,000–$1,900**
+The "real luxury brand, modern, not vintage-y" pick. Steel + gold, black dial,
+three-register, tachy or fluted bezel, two-tone bracelet. Quartz at the low
+end, automatic near $2k. Looks the most legitimately expensive of the bunch.
+- https://www.chrono24.com/tagheuer/carrera--mod153.htm
+
+**DT3. Maurice Lacroix Aikon Automatic Chronograph, two-tone — used ~$1,300–$1,900**
+Modern Swiss automatic chrono with rose-gold accents. Not the Daytona
+silhouette (integrated bracelet, no tachy bezel) but the same "gold sporty
+chronograph" energy, and the most contemporary-looking option here.
+- https://www.chrono24.com/mauricelacroix/aikon--mod2456.htm
+
+**DT4. Yema Rallygraf, gold-tone / panda — ~$350–$500**
+French racing-chronograph heritage, tachymeter bezel, panda dials, gold-tone
+options. Tasteful and its own design — not a clone. The smart cheap pick.
+- https://yema.com/products/yema-rallygraf-meca-quartz-panda-ymhf1580-ba
+
+*Also worth a look:* Furlan Marri mecaquartz chronographs (~$450–$750) — very
+on-trend and look expensive, but they're elegant dress-panda chronos, no gold
+case or tachy bezel, so more "refined chrono" than "Daytona."
+
+**Pick:** if you want it to read as modern luxury → **DT2 (used TAG two-tone)**.
+If you want the most striking black-and-gold-per-dollar and don't mind a
+vintage piece → **DT1 (Seiko JPS)** — it's the cooler watch.
+
+## Buying Used in Tokyo
+
+Areas, nearest first if you're in Ueno:
+
+- **Ueno / Okachimachi / Ameyoko** — you're standing in it. The Ameyoko market
+  and Okachimachi jewelry district have a real cluster of used-watch shops
+  (postwar black-market roots). **Quark Ueno** is a Rolex/luxury specialist and
+  their head shop — English-friendly, authenticated stock. Yodobashi Camera
+  Ueno has a full watch floor (7F) for comparison.
+- **Akihabara** — ~3 min by train; a few used dealers, easy add-on.
+- **Nakano Broadway** — ~30 min; *the* pre-owned destination. Dozens of dealers
+  on the 3rd floor. **Jackroad** (6,000+ watches, English staff, clear pricing)
+  is the single best stop in Tokyo; **Firekids** for vintage.
+- **Shinjuku** — ~25 min. **Ishida** flagship is six floors of watches
+  (basement = vintage). Komehyo nearby.
+- **Ginza** — ~15 min. Best for high-end / near-new pieces; pricier, polished.
+
+Tips: bring your **passport** — many shops do tax-free (~10% off) for foreign
+tourists, even on used watches. Buy from dealers who authenticate and give
+paperwork. The weak yen makes Japan a genuinely good place to buy now.
+- Quark Ueno: https://www.909.co.jp/en/ueno_shop.html
+- Ueno-area watch shops guide: https://livejapan.com/en/in-tokyo/in-pref-tokyo/in-ueno/article-a0005716/
+- Tokyo watch-shopping overview: https://www.chrono24.com/magazine/is-tokyo-the-best-place-for-watch-lovers-our-favorite-spots-p_101005/
+
 ## The Ranking
 
 ### 1. Rolex Datejust 36, two-tone (ref. 16233 / 116233) — ~$7,000–$9,500
