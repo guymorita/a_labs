@@ -113,6 +113,95 @@ obvious brand → **E (Maurice Lacroix)** or **F (Longines)**. Want the
 chronograph look → **CH1 (Tudor Black Bay Chrono S&G)** pre-owned, or
 **CH3 (Aikon Chrono)** for the best value.
 
+## Nicest Used Gold Chronograph, $1–2k
+
+Reality check: no *solid* gold chronograph exists at this price — solid-gold
+chronos start around $20k. At $1–2k used you get **gold-tone (PVD/plated)** or
+**two-tone with gold accents**. Ranked by how nice they actually look/wear.
+
+**UC1. Maurice Lacroix Aikon Automatic Chronograph, two-tone — used ~$1,300–$1,900**
+The clear winner. A genuine *Swiss automatic* chronograph with rose-gold
+accents, integrated bracelet, clawed bezel — modern, not vintage, and looks
+like a $4k watch. Real listings have appeared near $1,300.
+- https://www.chrono24.com/mauricelacroix/aikon--mod2456.htm
+
+**UC2. Hamilton Intra-Matic Chronograph, yellow-gold PVD — used ~$1,100–$1,600**
+Swiss, clean panda-style three-register dial, gold-tone PVD over steel (so
+scratch-resistant). Slightly retro but tidy, not fussy.
+- https://www.chrono24.com/hamilton/intra-matic--mod833.htm
+
+**UC3. Frederique Constant Highlife / Classics Chronograph, rose-gold two-tone — used ~$900–$1,500**
+Swiss-made, sapphire, dressy three-register layout. Quietly upmarket.
+- https://www.chrono24.com/frederiqueconstant/index.htm
+
+**UC4. Tissot PRX / Heritage Chronograph, gold-tone — used ~$700–$1,400**
+Integrated-bracelet PRX chrono or the gold-tone Heritage chrono. Steel case,
+gold tones — solid value, modern look on the PRX.
+- https://www.tissotwatches.com/en-us/men.html
+
+**UC5. Seiko Prospex Speedtimer Solar Chronograph, gold-tone — used ~$350–$550**
+Cheapest pick that still looks sharp: 39mm gold-tone, crisp dial, solar so
+zero maintenance.
+- https://www.seikowatches.com/us-en/products/prospex/speedtimer
+
+**Pick: UC1, the Maurice Lacroix Aikon Auto Chrono.** It's the only one here
+that's a real mechanical chronograph *and* hits the modern, expensive-looking,
+gold brief — at the bottom of your budget.
+
+## Cartier Tank — Top 20
+
+Ranked for your situation: gold-leaning, elegant, ~$2–10k sweet spot. Grail
+references are included for completeness and flagged **(over budget)**. Prices
+are 2026 market estimates.
+
+1. **Vintage Tank Louis Cartier, solid 18k gold (1970s–90s)** — ~$5,000–$9,000
+   — a real solid-gold Tank that fits the budget. Best buy on the list.
+2. **Tank Louis Cartier, modern 18k yellow/rose gold** — ~$10,200–$13,000 —
+   the definitive Tank; sits right at your ceiling.
+3. **Must de Cartier Tank, vintage vermeil (gold-finish)** — ~$1,800–$3,800 —
+   best gold-*look* value; the fashion-crowd favorite.
+4. **Tank Française, two-tone steel & gold** — ~$6,000–$8,500 — gold + a
+   bracelet; the most durable, most everyday-wearable Tank.
+5. **Tank Must Large, mechanical, steel** — ~$3,500–$4,000 — cleanest modern
+   entry (steel, not gold, but the sharpest-looking modern Tank).
+6. **Tank Must Large, SolarBeat, steel** — ~$3,000–$3,400 — light-powered,
+   zero-maintenance modern Tank.
+7. **Vintage Tank Française, two-tone (1990s–2000s)** — ~$3,500–$5,500 — the
+   value version of #4.
+8. **Tank Américaine, steel** — ~$5,000–$6,000 — elongated, dressier case.
+9. **Tank Solo XL, automatic, steel** — ~$3,500–$4,200 — larger modern Tank
+   with a mechanical movement.
+10. **Tank Américaine, 18k gold (small/mid)** — ~$11,000–$16,000 **(over
+    budget)** — the elegant elongated gold Tank.
+11. **Tank Solo, steel quartz** — ~$2,000–$3,000 — cheapest way into a Tank.
+12. **Tank Française, 18k solid gold** — ~$18,000+ **(over budget)**.
+13. **Tank Basculante, steel (reversible vintage)** — ~$3,000–$5,000 — quirky
+    collector piece, flips in its frame.
+14. **Tank Anglaise, 18k gold** — ~$18,000+ **(over budget)** — integrated
+    recessed crown.
+15. **Tank Normale, 2024 reissue** — ~$13,000+ **(over budget)** — the current
+    collector darling.
+16. **Tank Chinoise, reissue (platinum/gold)** — $$$ **(over budget)** —
+    horizontal-brancard icon.
+17. **Tank Cintrée** — $$$$ **(over budget)** — the long, curved haute grail.
+18. **Tank Asymétrique / LC Asymétrique** — ~$30,000+ **(over budget)** —
+    parallelogram collector icon.
+19. **Tank à Guichets, jump-hour** — ~$40,000+ **(over budget)** — dial-less
+    aperture grail.
+20. **Vintage Tank "Obus" / "Allongée" / early Normale** — price varies —
+    deep-cut vintage references for collectors.
+
+**Tank shortlist for you:** #1 (vintage solid-gold Louis Cartier) if you want
+real gold within budget; #3 (vintage Must vermeil) for the look at a third the
+price; #4 (Française two-tone) if you want gold *and* a bracelet you can beat
+up a little.
+
+Tank links:
+- Cartier official Tank collection: https://www.cartier.com/en-us/watches/collections/tank/
+- Used/vintage Tanks — Chrono24: https://www.chrono24.com/cartier/tank--mod186.htm
+- Used Tanks — Bob's Watches: https://www.bobswatches.com/cartier/tank-1.html
+- Tank model guide: https://www.grayandsons.com/blog/a-guide-to-different-cartier-tank-watches/
+
 ## The Ranking
 
 ### 1. Rolex Datejust 36, two-tone (ref. 16233 / 116233) — ~$7,000–$9,500
