@@ -18,6 +18,64 @@ ceiling around **$5–10k** (lower picks included so you can ease in).
 - **Durability ranking:** two-tone steel/gold ≈ gold-tone PVD on steel >
   gold-capped vintage > solid gold.
 
+## Refined Shortlist — Modern · Black Dial · Gold
+
+Updated brief: gold, **black face**, slightly aggressive but **not huge**,
+looks expensive, modern (not vintage), open to high-quality non-ultra brands.
+This narrows it to modern sport/diver and integrated-bracelet watches in
+~38–42mm. Ranked best-fit first.
+
+### A. Tudor Black Bay S&G 41mm, black dial — MSRP ~$6,875 / pre-owned ~$5,000–$5,600
+The bullseye. Black domed dial, yellow-gold bezel + bracelet centre links,
+steel diver case, sapphire, 41mm — aggressive lines without being oversized,
+and it's Rolex's own sister brand so quality is unquestioned. Discontinued in
+2026, so the pre-owned price is the smart buy.
+- https://www.tudorwatch.com/en/watches/black-bay/m79733n-0008
+
+### B. Omega Seamaster Diver 300M, steel + Sedna gold, black ceramic dial — ~$7,000–$8,800
+The "looks most expensive" pick. Polished **black ceramic** wave dial, gold
+hands/indices/bezel scale, 42mm. Master Chronometer movement. Premium feel
+top to bottom.
+- https://www.omegawatches.com/en-us/watch-omega-seamaster-diver-300m-co-axial-master-chronometer-42-mm-21022422001002
+
+### C. Tudor Black Bay GMT S&G, black dial — ~$5,500–$6,800
+Same S&G formula plus a GMT hand and an all-black bezel — reads a touch more
+aggressive than A. Great if you travel or just want the extra dial interest.
+- https://www.tudorwatch.com/en/watches/black-bay-gmt/m79833mn-0004
+
+### D. TAG Heuer Aquaracer Professional 200, two-tone gold, black dial — ~$3,000–$3,600
+Faceted twelve-sided bezel, sharp case lines — the most overtly "aggressive"
+shape here, still only ~40mm. Gold-coated bezel/crown/indices on steel.
+- https://www.tagheuer.com/us/en/timepieces/collections/tag-heuer-aquaracer/
+
+### E. Maurice Lacroix Aikon Automatic, two-tone / black dial — ~$2,200–$2,900
+The non-ultra-brand standout. Integrated bracelet, signature six-arm clawed
+bezel = aggressive without bulk, 39–42mm, genuinely high finishing. Punches
+to ~$5k in feel.
+- https://www.exquisitetimepieces.com/watch-brands/maurice-lacroix/aikon.html
+
+### F. Longines HydroConquest, two-tone, black dial 41mm — ~$1,250–$1,500
+Absurd value. Yellow-gold PVD case detail, black ceramic bezel, black dial,
+Swiss automatic, sapphire. Looks like a $4k watch; quality is genuinely high.
+- https://www.longines.com/en-us/watches/conquest/hydroconquest
+
+### G. Rolex Datejust 41, two-tone, black dial — ~$11,000–$14,000 (just over budget)
+The aspirational version of the look — bigger, modern 41mm, fluted gold bezel,
+black dial. Listed for honesty: it sits above the $10k ceiling, so treat it as
+the stretch goal, not the value buy.
+- https://www.rolex.com/watches/datejust
+
+### H. Tissot PRX Powermatic 80, two-tone, black dial — ~$700–$825
+Cheapest way to nail the brief: integrated-bracelet '70s sport silhouette,
+sharp lines, 40mm, sapphire, Swiss automatic. The steel case keeps it durable;
+gold accents do the work.
+- https://www.tissotwatches.com/en-us/collection/main-collections/tissot-prx.html
+
+**Bottom line:** if you buy one watch, get **A — Tudor Black Bay S&G black
+dial** pre-owned (~$5–5.6k). It hits every word of your brief. Want it to feel
+even more premium → **B (Omega)**. Want max quality-per-dollar from a less
+obvious brand → **E (Maurice Lacroix)** or **F (Longines)**.
+
 ## The Ranking
 
 ### 1. Rolex Datejust 36, two-tone (ref. 16233 / 116233) — ~$7,000–$9,500
