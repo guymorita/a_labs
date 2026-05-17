@@ -71,10 +71,47 @@ sharp lines, 40mm, sapphire, Swiss automatic. The steel case keeps it durable;
 gold accents do the work.
 - https://www.tissotwatches.com/en-us/collection/main-collections/tissot-prx.html
 
+### Chronograph picks (some subdials, "a bit" — not hardcore)
+
+Same brief — modern, gold, black dial, sharp-not-huge — with a chronograph
+dial. Ranked best-fit first.
+
+**CH1. Tudor Black Bay Chrono S&G — ~$10,825 retail / pre-owned ~$7,000–$8,800**
+The direct chrono sibling of pick A. Black dial with yellow-gold subdials and
+indices, gold bezel/pushers/crown, 41mm. The exact "looks expensive, a bit
+sporty" answer. Retail is over budget — buy pre-owned.
+- https://www.tudorwatch.com/en/watches/black-bay-chrono/m79363n-0001
+
+**CH2. TAG Heuer Carrera Chronograph, two-tone gold — ~$5,500–$7,000**
+Racing-chrono heritage, clean three-register layout, ~41mm. Two-tone gold
+editions with black dials sit comfortably in budget. Sporty without shouting.
+- https://www.tagheuer.com/us/en/timepieces/collections/tag-heuer-carrera/
+
+**CH3. Maurice Lacroix Aikon Automatic Chronograph, two-tone rose gold — ~$2,300–$3,200**
+The value standout again: integrated bracelet, clawed bezel, black dial,
+rose-gold accents, genuine Swiss automatic chronograph. Looks like double the
+price.
+- https://www.mauricelacroix.com/us_en/watches/watches-aikon/watches-aikon-automatic/aikon-automatic-chronograph/AI6038-SS002-430-1.html
+
+**CH4. Seiko Prospex Speedtimer Chronograph, gold-tone — solar ~$500–$750 / mechanical ~$2,500**
+39mm gold-tone case, crisp panda-style dial. The solar version is the best
+cheap chrono that doesn't look cheap; the mechanical adds real watchmaking.
+- https://www.seikowatches.com/us-en/products/prospex/speedtimer
+
+**CH5. Tissot Chrono / PRS-516, gold-tone two-tone — ~$425–$900**
+Budget toe-in: motorsport-styled chronograph, gold-tone case options, black
+dials. Quartz keeps it cheap; build still feels solid.
+- https://www.tissotwatches.com/en-us/men.html
+
+*Stretch / over-budget icon:* the Omega Speedmaster in steel + Sedna gold is
+the definitive chronograph look, but two-tone versions run ~$11–14k.
+
 **Bottom line:** if you buy one watch, get **A — Tudor Black Bay S&G black
 dial** pre-owned (~$5–5.6k). It hits every word of your brief. Want it to feel
 even more premium → **B (Omega)**. Want max quality-per-dollar from a less
-obvious brand → **E (Maurice Lacroix)** or **F (Longines)**.
+obvious brand → **E (Maurice Lacroix)** or **F (Longines)**. Want the
+chronograph look → **CH1 (Tudor Black Bay Chrono S&G)** pre-owned, or
+**CH3 (Aikon Chrono)** for the best value.
 
 ## The Ranking
 
