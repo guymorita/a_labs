@@ -228,6 +228,41 @@ weekends, so reachable tonight).
 - Sensible default to discuss: **Rejuran + Botox** (glow + dynamic lines) or, if you
   want longevity, **HIFU/RF lifting + Botox**. Decide with the doctor.
 
+## 12. Thermage Eyes + Ultherapy — $2,500 decision (follow-up)
+
+Patient completed forehead + masseter Botox; doctor now recommends Thermage Eye
+("450" eye tip) + Ultherapy, quoted **$2,500 USD**. Main concern: under-eye darkness
+(corner of eye toward lower-center), early crow's feet, periorbital fine lines.
+Diagnostic found skin hydrated, pores fine, no major pigmentation.
+
+- **Fit:** Thermage Eye and Ultherapy both genuinely help **crow's feet and fine
+  lines** (RF/ultrasound collagen tightening). Reasonable, and 38 is a sensible age to
+  start. Ultherapy "reshaping" = a *subtle* lift (brow/jaw), not bone reshaping.
+- **The gap to flag:** energy devices **tighten skin; they do not fill a hollow.** The
+  under-eye darkness is most likely a **tear-trough shadow** from volume loss. If so,
+  the direct fix is **tear-trough HA filler** (instant, also same-day doable) — Thermage/
+  Ultherapy will only marginally improve the shadow. Before paying, ask the doctor
+  point-blank: *what is causing the dark area (hollow / pigment / vessels), and will
+  these treatments actually lighten it?*
+- **Redundancy check:** ask what the Ultherapy treats that the Thermage doesn't. Good
+  answer: Ultherapy lifts brow/jaw/lower face, Thermage smooths eye skin. If both are
+  just aimed at the eyes, question whether both are needed.
+- **Price:** $2,500 for both is **fair-to-good** (US: Ultherapy alone $2–4k, Thermage
+  Eye $0.9–1.5k). Not a rip-off. The real risk is the opposite — suspiciously *cheap*
+  Ultherapy/Thermage in Korea often means **counterfeit or reused single-use tips**.
+- **Verify genuine devices (do this):** have the tip/cartridge box **opened in front
+  of you**; Ultherapy cartridges have authenticity markings + transducer serial — ask
+  for it recorded; Thermage genuine tip is single-use (ask for the used tip after).
+  Get the **shot/line count in writing** (Ultherapy sold by lines, e.g. 300/600).
+- **Botox timing:** energy treatment 1 day after Botox is generally accepted; keep the
+  applicator off the fresh forehead injection sites (heat may anecdotally weaken
+  Botox). Raise it with the doctor.
+- **Now vs wait:** not urgent — no medical pressure. Do it tomorrow if (a) the doctor
+  confirms it addresses the actual concern, (b) devices verified genuine + line count
+  in writing, (c) $2,500 is comfortable. Wait if the darkness is a hollow this won't
+  fix, or if you feel rushed and want a second opinion. Plan a buffer before the flight
+  (Ultherapy can be painful; ~1.5–2.5 hr + numbing).
+
 ## Sources
 
 - https://www.thepickool.com/gangnam-unni-launches-fake-review-crackdown/
@@ -250,3 +285,8 @@ weekends, so reachable tonight).
 - https://thefineclinic.com/en
 - https://www.harpersbazaar.com.sg/beauty/private-suites-english-speaking-doctors-seoul-aesthetic-clinic-bespoke-skin-treatments-forena-clinic
 - https://english.visitkorea.or.kr/svc/contents/MedicalKorea/contentsMedicalKoreaView.do?menuSn=923&dataSetId=116&vcontsId=204561
+- https://glamormedical.com/how-to-spot-a-fake-ultherapy-devices/
+- https://seyeclinic.com/en/posts/thermage-600-shots-price-comparison-risks
+- https://www.cosmeticskinclinic.com/blog/tips-get-rid-dark-circles-sunken-eyes/
+- https://abplasticsurgerykorea.com/ab-blog/thermage-for-eyes-the-best-treatment-for-eye-wrinkles-sagging
+- https://www.realself.com/question/safe-thermage-after-botox-injection
